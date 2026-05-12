@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with updated Scripts for hypershot, the #1 Script. Includes esp and infinite resources for unbeatable
 
 
 
